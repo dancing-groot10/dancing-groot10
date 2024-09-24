@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, Music and Football 
 - 🌱 I’m always learning something
 - 💞️ I’m looking to collaborate on building tools or products that solve real world problems 
-- 📫 How to reach me ... TBA
+- 📫 How to reach me: dancing.groot1010@gmail.com
 - 😄 Pronouns: His/Him
 - ⚡ Fun fact: I am Groot!
 
