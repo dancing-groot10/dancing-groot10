@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on building tools or products that solve real world problems 
 - 📫 How to reach me: dancing.groot1010@gmail.com
 - 😄 Pronouns: His/Him
-- ⚡ Fun fact: I am Groot!
+- ⚡ Fun fact: I am Root!
 
 <!---
 dancing-groot10/dancing-groot10 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
